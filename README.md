@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **den.kenuneo@gmail.com**
 
-- 📄 Know about my experiences [Playing game until other people call me Cheater](Playing game until other people call me Cheater)
+- 📄 Know about my experiences [Playing game until other people call me Cheater]
 
 - ⚡ Fun fact **Wanna become a pro programmer but i playing game everytime**
 
